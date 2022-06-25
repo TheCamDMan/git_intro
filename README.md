@@ -1,1 +1,2 @@
 Cameron Blankenship
+blankeca@oregonstate.edu
